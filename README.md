@@ -1,2 +1,2 @@
 # learning
-The thins i have to and i already learned is hear.
+The things i have to and i already learned is hear.
